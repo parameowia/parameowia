@@ -14,6 +14,8 @@
 
 STILL working on this... <img width="20" height="20" alt="IMG_1720" src="https://github.com/user-attachments/assets/d027ddd8-91fc-4bcd-b048-c94845075d9e" />
 
+‪‪❤︎‬ hello! most of my oomfies call me mewo or milo, i'm open to silly nicknames though
+
 [BluePendrive](https://github.com/Blue-Pendrive) is my other acc!
 
 <img width="200" height="200" alt="IMG_1701" src="https://github.com/user-attachments/assets/7e739d45-57d5-4b79-8729-50daef8565ef" />
