@@ -16,17 +16,19 @@ STILL working on this TRASH... (wip) <img width="20" height="20" alt="IMG_1720" 
 
 ‪‪⧽ hello! most of my oomfies call me mewo or milo, i'm open to silly nicknames though
 
-⧽ kins : 
-<br>
-
-Indigo (Sonic Originals)
-
-Lampert (Regretevator)
-
-Skittles / Soren (^_^ / HWWHP)
-
-Gabriel (ULTRAKILL)
-
 [BluePendrive](https://github.com/Blue-Pendrive) is my other acc!
 
 <img width="200" height="200" alt="IMG_1701" src="https://github.com/user-attachments/assets/7e739d45-57d5-4b79-8729-50daef8565ef" />
+</details>
+
+<details>
+<summary> 𝐊𝐢𝐧𝐬 !</summary>
+<div align="center">
+
+⧽ Indigo (Sonic Originals)
+
+⧽ Lampert (Regretevator)
+
+⧽ Skittles / Soren (^_^ / HWWHP)
+
+⧽ Gabriel (ULTRAKILL)
