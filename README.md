@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=spread-the-l0ve&color=BDB35D&label=⟡‎‎)
+![](https://komarev.com/ghpvc/?username=spread-the-l0ve&color=BEAF53&label=⟡‎‎)
 
 <img width="735" height="492" alt="144 Sem Título_20260430233320" src="https://github.com/user-attachments/assets/3bbdda34-6ec4-4558-af1f-f459a14285e5" />
 ‎<br>
@@ -12,6 +12,6 @@
 <div align="center">
 <br>
 
-actual wip wow
+STILL working on this...
 
 <img width="200" height="200" alt="IMG_1701" src="https://github.com/user-attachments/assets/7e739d45-57d5-4b79-8729-50daef8565ef" />
