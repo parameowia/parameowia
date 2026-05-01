@@ -12,7 +12,7 @@
 <div align="center">
 <br>
 
-STILL working on this... <img width="20" height="20" alt="IMG_1720" src="https://github.com/user-attachments/assets/d027ddd8-91fc-4bcd-b048-c94845075d9e" />
+STILL working on this TRASH... <img width="20" height="20" alt="IMG_1720" src="https://github.com/user-attachments/assets/d027ddd8-91fc-4bcd-b048-c94845075d9e" />
 
 ‪‪❤︎‬ hello! most of my oomfies call me mewo or milo, i'm open to silly nicknames though
 
