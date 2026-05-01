@@ -1,7 +1,7 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=spread-the-l0ve&color=95945D&label=⟡‎‎)
+![](https://komarev.com/ghpvc/?username=spread-the-l0ve&color=8B4546&label=⟡‎‎)
 
-<img width="1000" height="544" alt="ROKEA" src="https://github.com/user-attachments/assets/23b7719f-f169-4dbd-83cc-8d2ff14bf74c" />
+<img width="735" height="492" alt="144 Sem Título_20260430233320" src="https://github.com/user-attachments/assets/3bbdda34-6ec4-4558-af1f-f459a14285e5" />
 
 𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
