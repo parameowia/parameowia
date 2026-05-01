@@ -12,4 +12,6 @@
 <div align="center">
 <br>
 
-ACTUAL wip
+actual wip wow
+
+<img width="200" height="200" alt="IMG_1701" src="https://github.com/user-attachments/assets/7e739d45-57d5-4b79-8729-50daef8565ef" />
