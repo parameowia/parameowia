@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=spread-the-l0ve&color=85424A&label=⟡‎‎)
+<a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=IKEA+employees&extraCount=808&color=B6B25D&labelColor=814B3E"/></a>
 
 <img width="735" height="492" alt="silly me" src="https://github.com/user-attachments/assets/b5b9a2e5-5c57-45be-a21c-ff852017a1cf" />
 
