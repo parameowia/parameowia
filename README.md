@@ -34,6 +34,6 @@ STILL working on this TRASH... (wip) <img width="20" height="20" alt="IMG_1720" 
 
 ⧽ Gabriel (ULTRAKILL)
 
-<img width="95" height="150" alt="bc63ef35eafefb2a40c4bbf693d6b5fe" src="https://github.com/user-attachments/assets/7c470a93-fee6-4e2e-9f50-4cab85154395" />
+<img width="230" height="290" alt="IMG_1753" src="https://github.com/user-attachments/assets/f9dc7941-7533-4e3c-b063-e472685d620b" />
 <br>
-very beautiful lamp png...
+me and my cute living room... trust!
