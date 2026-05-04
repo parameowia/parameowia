@@ -13,12 +13,12 @@
 <div align="center">
 <br>
 
+‪‪⧽ hello! most of my oomfies call me mewo or milo, i'm open to silly nicknames though
+
 STILL working on this TRASH... (wip)
 
 also working on new separate ata ; ) i'm on break though
 <img width="20" height="20" alt="IMG_1720" src="https://github.com/user-attachments/assets/d027ddd8-91fc-4bcd-b048-c94845075d9e" />
-
-‪‪⧽ hello! most of my oomfies call me mewo or milo, i'm open to silly nicknames though
 
 [BluePendrive](https://github.com/Blue-Pendrive) is my other acc!
 
