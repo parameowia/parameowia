@@ -1,8 +1,12 @@
 <div align="center">
 
-<a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=IKEA+employees&extraCount=808&color=B6B25D&labelColor=7B4443"/></a>
+<a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=IKEA+employees&extraCount=808&color=B6B25D&labelColor=7B4443"/>
 
-<img width="735" height="492" alt="silly me" src="https://github.com/user-attachments/assets/b5b9a2e5-5c57-45be-a21c-ff852017a1cf" />
+
+<img width="47" height="18" alt="stickers_fb288d67b52bf77afd68e12cf600f208" src="https://github.com/user-attachments/assets/aea2977f-b18f-4c0e-91ea-555d2d18c5d1" /> <img width="60" height="18" alt="IMG_1857" src="https://github.com/user-attachments/assets/b1622a02-ac4a-4661-b1d6-76d3d2782219" /> <img width="39" height="18" alt="IMG_1853" src="https://github.com/user-attachments/assets/69c568dd-1166-4f77-b206-608df57bbd1c" /> <img width="58" height="18" alt="IMG_1861" src="https://github.com/user-attachments/assets/55addd9b-b823-4128-854c-270d05f9283d" /> 
+
+<img width="1200" height="897" alt="ILOVEMEDS" src="https://github.com/user-attachments/assets/0dc3c108-1bc1-41c6-96d8-bf6f031267b6" />
+
 
 ‎<br>
 <img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/9efd1753-c926-4467-9177-438c8d8e9238" />
