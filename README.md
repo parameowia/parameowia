@@ -12,7 +12,7 @@
 <img width="99" height="56" alt="151 Sem Título_20260609203843" src="https://github.com/user-attachments/assets/48ea736d-3426-4878-b690-e58da42a2126" />
 <img width="99" height="56" alt="IMG_1837" src="https://github.com/user-attachments/assets/2ac566d4-abc5-46aa-93cf-183b2fb28ee0" />
 
-<img width="500" height="10" alt="ezgif-72b322509ced83aa" src="https://github.com/user-attachments/assets/3192aa52-ced2-4257-b3fd-6c19b58c85b1" />
+<img width="540" height="90" alt="IMG_1914" src="https://github.com/user-attachments/assets/34fa5dab-9265-4d1c-a64c-156694928e42" />
 
 ‎<br>
 <img width="20" height="20" alt="IMG_1906" src="https://github.com/user-attachments/assets/14e0c2c0-7fdf-4a36-a491-873db33f84e6" /> ﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
