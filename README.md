@@ -13,9 +13,7 @@
 <img width="99" height="56" alt="151 Sem Título_20260609203843" src="https://github.com/user-attachments/assets/48ea736d-3426-4878-b690-e58da42a2126" />
 <img width="99" height="56" alt="IMG_1837" src="https://github.com/user-attachments/assets/2ac566d4-abc5-46aa-93cf-183b2fb28ee0" />
 
-
-<img width="500" height="10" alt="IMG_1899" src="https://github.com/user-attachments/assets/6478e473-c8e1-4f74-86dc-faa55d47172c" />
-
+<img width="500" height="10" alt="ezgif-72b322509ced83aa" src="https://github.com/user-attachments/assets/3192aa52-ced2-4257-b3fd-6c19b58c85b1" />
 
 ‎<br>
 <img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/9efd1753-c926-4467-9177-438c8d8e9238" />
