@@ -6,7 +6,6 @@
 <img width="47" height="18" alt="stickers_fb288d67b52bf77afd68e12cf600f208" src="https://github.com/user-attachments/assets/aea2977f-b18f-4c0e-91ea-555d2d18c5d1" /> <img width="50" height="18" alt="IMG_1857" src="https://github.com/user-attachments/assets/b1622a02-ac4a-4661-b1d6-76d3d2782219" /> <img width="39" height="18" alt="IMG_1853" src="https://github.com/user-attachments/assets/69c568dd-1166-4f77-b206-608df57bbd1c" /> <img width="58" height="18" alt="IMG_1861" src="https://github.com/user-attachments/assets/55addd9b-b823-4128-854c-270d05f9283d" /> <img width="66" height="18" alt="IMG_1887" src="https://github.com/user-attachments/assets/2ed48e09-0cc7-4982-b65e-bdc69bd23e2f" /> <img width="50" height="18" alt="tumblr-6b3d90ee5620dff40d00347e4fa7c328-6731257a-75" src="https://github.com/user-attachments/assets/0892759b-f2b2-4dcb-96f1-882d12bfd09d" />
 
 
-
 <img width="1200" height="897" alt="ILOVEMEDS" src="https://github.com/user-attachments/assets/0dc3c108-1bc1-41c6-96d8-bf6f031267b6" />
 
 <img width="99" height="56" alt="IMG_1838" src="https://github.com/user-attachments/assets/0aaea766-4119-451f-9514-4807245c4dd6" /> <img width="99" height="56" alt="151 Sem Título_20260609203731" src="https://github.com/user-attachments/assets/e407d009-1d7b-4e6d-bf32-423dd91baae9" />
@@ -14,6 +13,8 @@
 <img width="99" height="56" alt="151 Sem Título_20260609203843" src="https://github.com/user-attachments/assets/48ea736d-3426-4878-b690-e58da42a2126" />
 <img width="99" height="56" alt="IMG_1837" src="https://github.com/user-attachments/assets/2ac566d4-abc5-46aa-93cf-183b2fb28ee0" />
 
+
+<img width="500" height="10" alt="IMG_1899" src="https://github.com/user-attachments/assets/6478e473-c8e1-4f74-86dc-faa55d47172c" />
 
 
 ‎<br>
