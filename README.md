@@ -12,8 +12,6 @@
 <img width="99" height="56" alt="151 Sem Título_20260609203843" src="https://github.com/user-attachments/assets/48ea736d-3426-4878-b690-e58da42a2126" />
 <img width="99" height="56" alt="IMG_1837" src="https://github.com/user-attachments/assets/2ac566d4-abc5-46aa-93cf-183b2fb28ee0" />
 
-<img width="540" height="90" alt="IMG_1914" src="https://github.com/user-attachments/assets/34fa5dab-9265-4d1c-a64c-156694928e42" />
-
 ‎<br>
 <img width="20" height="20" alt="IMG_1906" src="https://github.com/user-attachments/assets/14e0c2c0-7fdf-4a36-a491-873db33f84e6" /> ﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
 ‎ 
@@ -24,14 +22,13 @@
 
 ‪‪⧽ hello! most of my oomfies call me mewo or milo, i'm open to silly nicknames though
 
-STILL working on this TRASH... (wip)
+STILL working on this TRASH again... (wip)
 
-also working on new separate ata ; ) i'm on break though
-<img width="20" height="20" alt="IMG_1720" src="https://github.com/user-attachments/assets/d027ddd8-91fc-4bcd-b048-c94845075d9e" />
+new ata never /j ok maybe after a few days
 
 [BluePendrive](https://github.com/Blue-Pendrive) is my other acc!
 
-<img width="200" height="200" alt="IMG_1701" src="https://github.com/user-attachments/assets/7e739d45-57d5-4b79-8729-50daef8565ef" />
+<img width="150" height="20" alt="IMG_1844" src="https://github.com/user-attachments/assets/c70f9004-3686-4f8e-9122-32e0d816a687" />
 </details>
 
 <details>
@@ -46,7 +43,7 @@ also working on new separate ata ; ) i'm on break though
 
 ⧽ Skittles / 𒐫𒐫𒐫𒐫...  / Soren (^_^ / HWWHP)
 
+</details>
 
-<img width="230" height="290" alt="IMG_1753" src="https://github.com/user-attachments/assets/f9dc7941-7533-4e3c-b063-e472685d620b" />
-<br>
-me and my cute living room... trust!
+<img width="540" height="90" alt="IMG_1914" src="https://github.com/user-attachments/assets/5e7ec1c7-50c6-44f9-98ae-d44db2f80e3e" />
+
