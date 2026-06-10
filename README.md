@@ -16,8 +16,7 @@
 <img width="500" height="10" alt="ezgif-72b322509ced83aa" src="https://github.com/user-attachments/assets/3192aa52-ced2-4257-b3fd-6c19b58c85b1" />
 
 ‎<br>
-<img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/9efd1753-c926-4467-9177-438c8d8e9238" />
-﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
+<img width="20" height="20" alt="IMG_1906" src="https://github.com/user-attachments/assets/14e0c2c0-7fdf-4a36-a491-873db33f84e6" /> ﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
 ‎ 
 <details>
 <summary> 𝐈𝐧𝐟𝐨 !</summary>
