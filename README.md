@@ -6,7 +6,7 @@
 
 <br>
 <div align="center">
-<img src="https://github.com/user-attachments/assets/648cb7f0-9be0-4654-a4d4-133181ea7103" align="left" width="420" height="390" style="right-margin" alt="ezgif-28df0517aacfb696" />
+<img src="https://github.com/user-attachments/assets/648cb7f0-9be0-4654-a4d4-133181ea7103" align="left" width="420" height="390" style="right-margin" alt="kitty" />
 <br>
 <br>
 <img width="67" height="18" alt="tumblr-1f8a5c37967d7d26151dd523c729d6f0-8efe2d28-75" src="https://github.com/user-attachments/assets/7b23879c-8d5f-4bdc-8d72-909cb816f268" />
