@@ -36,10 +36,9 @@ new ata never /j ok maybe after a few days
 [BluePendrive](https://github.com/Blue-Pendrive) is my other acc!
 
 <br>
-<img width="150" height="245" alt="154 Sem Título_20260619213844" src="https://github.com/user-attachments/assets/15dd6b44-2720-4e45-80ec-3f11c3d86efb" />
 
+<img width="100" height="100" alt="IMG_1985" src="https://github.com/user-attachments/assets/49edffcd-e2a6-4702-be8e-7018363a77bd" />
 
-i love louis wain's kitties...
 </details>
 
 <details>
