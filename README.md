@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="20" height="20" alt="IMG_1832" src="https://github.com/user-attachments/assets/3cbfbed9-2b48-4c75-85b8-4e4b2ce26c51" />
+<img width="20" height="20" alt="IMG_1832" src="https://github.com/user-attachments/assets/17fac78f-e1e9-4f58-afcc-42c46af9f2ba" />
 
 <a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=kitties!&extraCount=808&color=F1FFF6&labelColor=FF6E4E&style=plastic"/>
 
@@ -8,7 +8,7 @@
 
 <br>
 <div align="center">
-<img width="371" height="355" alt="ezgif-28df0517aacfb696" src="https://github.com/user-attachments/assets/648cb7f0-9be0-4654-a4d4-133181ea7103" />
+<img width="420" height="390" alt="ezgif-28df0517aacfb696" src="https://github.com/user-attachments/assets/648cb7f0-9be0-4654-a4d4-133181ea7103" />
   
 <br>
 <img width="107" height="64" alt="IMG_1953" src="https://github.com/user-attachments/assets/e44c83d8-372f-4a81-9e25-9be87bc30e9c" />
@@ -20,7 +20,7 @@
 
 
 ‎<br>
-<img width="20" height="20" alt="IMG_1906" src="https://github.com/user-attachments/assets/14e0c2c0-7fdf-4a36-a491-873db33f84e6" /> ﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
+<img width="20" height="20" alt="IMG_1978" src="https://github.com/user-attachments/assets/095a96a5-e6a3-476a-87dc-ef089e9e63a8" />﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
 ‎ 
 <details>
 <summary> 𝐈𝐧𝐟𝐨 !</summary>
