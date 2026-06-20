@@ -7,7 +7,7 @@
 <br>
 <div align="center">
 <img src="https://github.com/user-attachments/assets/648cb7f0-9be0-4654-a4d4-133181ea7103" align="left" width="420" height="390" style="right-margin" alt="ezgif-28df0517aacfb696" />
-  
+<br>
 <br>
 <img width="67" height="18" alt="tumblr-1f8a5c37967d7d26151dd523c729d6f0-8efe2d28-75" src="https://github.com/user-attachments/assets/7b23879c-8d5f-4bdc-8d72-909cb816f268" />
 <br>
@@ -25,7 +25,7 @@
 ‎ 
 <details>
 <summary> 𝐈𝐧𝐟𝐨 !</summary>
-<div align="center">
+<h6 align="center">
 <br>
 
 ‪‪⧽ hello! most of my oomfies call me mewo or milo, i'm open to silly nicknames though
@@ -46,7 +46,7 @@ new ata never /j ok maybe after a few days
 
 <details>
 <summary> 𝐊𝐢𝐧𝐬 !</summary>
-<div align="center">
+<h6 align="center">
 
 <img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Indigo (Sonic Originals)
 
@@ -55,5 +55,7 @@ new ata never /j ok maybe after a few days
 <img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Gabriel (ULTRAKILL)
 
 <img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Skittles / 𒐫𒐫𒐫𒐫...  / Soren (^_^ / HWWHP)
+
+𝜗𝜚
 
 </details>
