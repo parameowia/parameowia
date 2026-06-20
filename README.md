@@ -35,7 +35,7 @@ new ata never /j ok maybe after a few days
 
 [BluePendrive](https://github.com/Blue-Pendrive) is my other acc!
 
-<img width="150" height="20" alt="IMG_1844" src="https://github.com/user-attachments/assets/c70f9004-3686-4f8e-9122-32e0d816a687" />
+
 </details>
 
 <details>
