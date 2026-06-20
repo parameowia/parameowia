@@ -29,7 +29,9 @@
 
 ‪‪⧽ hello! most of my oomfies call me mewo or milo, i'm open to silly nicknames though
 
-STILL working on this TRASH again... (wip)
+STILL working on this TRASH again... (wip) <img width="20" height="20" alt="IMG_1720" src="https://github.com/user-attachments/assets/8ca29e2d-88ed-4058-b467-7564e09c8415" />
+
+
 
 new ata never /j ok maybe after a few days
 
@@ -45,12 +47,12 @@ new ata never /j ok maybe after a few days
 <summary> 𝐊𝐢𝐧𝐬 !</summary>
 <div align="center">
 
-⧽ Indigo (Sonic Originals)
+<img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Indigo (Sonic Originals)
 
-⧽ Lampert (Regretevator)
+<img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Lampert (Regretevator)
 
-⧽ Gabriel (ULTRAKILL)
+<img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Gabriel (ULTRAKILL)
 
-⧽ Skittles / 𒐫𒐫𒐫𒐫...  / Soren (^_^ / HWWHP)
+<img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Skittles / 𒐫𒐫𒐫𒐫...  / Soren (^_^ / HWWHP)
 
 </details>
