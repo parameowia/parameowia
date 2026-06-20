@@ -20,7 +20,7 @@
 
 
 ‎<br>
-<img width="20" height="20" alt="IMG_1978" src="https://github.com/user-attachments/assets/095a96a5-e6a3-476a-87dc-ef089e9e63a8" />﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
+<img width="20" height="20" alt="IMG_1719" src="https://github.com/user-attachments/assets/92bf8661-d4a2-43fd-b286-d3bd9e8239c6" />﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
 ‎ 
 <details>
 <summary> 𝐈𝐧𝐟𝐨 !</summary>
@@ -35,7 +35,11 @@ new ata never /j ok maybe after a few days
 
 [BluePendrive](https://github.com/Blue-Pendrive) is my other acc!
 
+<br>
+<img width="150" height="245" alt="154 Sem Título_20260619213844" src="https://github.com/user-attachments/assets/15dd6b44-2720-4e45-80ec-3f11c3d86efb" />
 
+
+i love louis wain's kitties...
 </details>
 
 <details>
