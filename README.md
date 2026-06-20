@@ -2,7 +2,7 @@
 
 <img width="20" height="20" alt="IMG_1832" src="https://github.com/user-attachments/assets/3cbfbed9-2b48-4c75-85b8-4e4b2ce26c51" />
 
-<a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=MEDICINE&extraCount=808&color=F1FFF6&labelColor=E22C29&style=plastic"/>
+<a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=kitties!&extraCount=808&color=F1FFF6&labelColor=EC5D53&style=plastic"/>
 
 <img width="47" height="18" alt="stickers_fb288d67b52bf77afd68e12cf600f208" src="https://github.com/user-attachments/assets/aea2977f-b18f-4c0e-91ea-555d2d18c5d1" /> <img width="50" height="18" alt="IMG_1857" src="https://github.com/user-attachments/assets/b1622a02-ac4a-4661-b1d6-76d3d2782219" /> <img width="39" height="18" alt="IMG_1853" src="https://github.com/user-attachments/assets/69c568dd-1166-4f77-b206-608df57bbd1c" /> <img width="58" height="18" alt="IMG_1861" src="https://github.com/user-attachments/assets/55addd9b-b823-4128-854c-270d05f9283d" /> <img width="66" height="18" alt="IMG_1887" src="https://github.com/user-attachments/assets/2ed48e09-0cc7-4982-b65e-bdc69bd23e2f" /> <img width="50" height="18" alt="tumblr-6b3d90ee5620dff40d00347e4fa7c328-6731257a-75" src="https://github.com/user-attachments/assets/0892759b-f2b2-4dcb-96f1-882d12bfd09d" />
 
