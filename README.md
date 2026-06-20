@@ -8,10 +8,12 @@
 
 <img width="640" height="360" alt="ezgif-2d98c2ce3007c4f5" src="https://github.com/user-attachments/assets/c37d46a6-94ec-4d90-afd6-0ecaffe42262" />
 
-<img width="99" height="56" alt="IMG_1838" src="https://github.com/user-attachments/assets/0aaea766-4119-451f-9514-4807245c4dd6" /> <img width="99" height="56" alt="151 Sem Título_20260609203731" src="https://github.com/user-attachments/assets/e407d009-1d7b-4e6d-bf32-423dd91baae9" />
-<img width="99" height="56" alt="151 Sem Título_20260609204457" src="https://github.com/user-attachments/assets/9095850b-3614-4620-8d5a-3270288f5eb8" />
-<img width="99" height="56" alt="151 Sem Título_20260609203843" src="https://github.com/user-attachments/assets/48ea736d-3426-4878-b690-e58da42a2126" />
-<img width="99" height="56" alt="IMG_1837" src="https://github.com/user-attachments/assets/2ac566d4-abc5-46aa-93cf-183b2fb28ee0" />
+<img width="107" height="64" alt="IMG_1953" src="https://github.com/user-attachments/assets/e44c83d8-372f-4a81-9e25-9be87bc30e9c" />
+<img width="107" height="64" alt="IMG_1963" src="https://github.com/user-attachments/assets/147912c2-fcd0-4132-bf62-d6a8fc94433d" />
+<img width="107" height="64" alt="IMG_1957" src="https://github.com/user-attachments/assets/720b790e-1d4e-40e1-b32b-d97dac799e98" />
+<img width="107" height="64" alt="IMG_1838" src="https://github.com/user-attachments/assets/05407b14-d2f1-43c1-bf28-7e0c257ddcf5" />
+<img width="107" height="64" alt="IMG_1955" src="https://github.com/user-attachments/assets/c34e8ae5-0cf8-4e41-b5b7-f67b2f8e904d" />
+
 
 ‎<br>
 <img width="20" height="20" alt="IMG_1906" src="https://github.com/user-attachments/assets/14e0c2c0-7fdf-4a36-a491-873db33f84e6" /> ﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
