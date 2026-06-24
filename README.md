@@ -28,9 +28,9 @@
 <h6 align="center">
 <br>
 
-‪‪⧽ hello! most of my oomfies call me mewo or milo, i'm open to silly nicknames though
+‪‪⧽ hello! most of my oomfies call me mewo or milo, i'm kind of open to silly nicknames though.
 
-STILL working on this TRASH again... (wip) <img width="20" height="20" alt="IMG_1720" src="https://github.com/user-attachments/assets/8ca29e2d-88ed-4058-b467-7564e09c8415" />
+i'm STILL working on this TRASH again... (wip) <img width="20" height="20" alt="IMG_1720" src="https://github.com/user-attachments/assets/8ca29e2d-88ed-4058-b467-7564e09c8415" />
 
 
 
