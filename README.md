@@ -14,7 +14,7 @@
 <br>
 
 <img width="107" height="64" alt="stamp1" src="https://github.com/user-attachments/assets/e3f5ba27-d577-448c-869a-f724ab5e239e" />
-<img width="107" height="64" alt="stamp2" src="https://github.com/user-attachments/assets/a9ce8ae2-edff-4712-a4fc-da1bc6d32172" />
+<img width="107" height="64" alt="stamp2" src="https://github.com/user-attachments/assets/56424f68-b9b1-47e0-a4d5-89c847c184d9" />
 <img width="107" height="64" alt="stamp3" src="https://github.com/user-attachments/assets/0a20031c-6e98-4431-952a-4718dbd9c7f1" />
 <img width="107" height=“64” alt=“stamp4” src="https://github.com/user-attachments/assets/efb318b2-7762-40da-9982-e504b6a663fb" />
 
