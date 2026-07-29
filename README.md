@@ -39,7 +39,7 @@ new ata never /j ok maybe after a few days
 
 <br>
 
-<img width="100" height="100" alt="IMG_1985" src="https://github.com/user-attachments/assets/49edffcd-e2a6-4702-be8e-7018363a77bd" />
+<img width="100" height="100" alt=“moth” src="https://github.com/user-attachments/assets/aa8154fb-c6e4-40fe-933f-6cdf15c14a9c" />
 
 </details>
 
