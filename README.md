@@ -1,13 +1,12 @@
 <div align="center">
 
-<img width="20" height="20" alt="viewkitty" src="https://github.com/user-attachments/assets/50b5488a-ccfd-4349-a531-eef55dc0b74a" />
-
-
+<img width="20" height="20" alt="viewkitty" src="https://github.com/user-attachments/assets/ba823310-b2d1-4158-98c3-ac36f82d97b3"
+ />
 <a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=kitties!&extraCount=808&color=F4E3F0&labelColor=FF83AE&style=plastic"/>
 
 <br>
 <div align="center">
-<img src="https://github.com/user-attachments/assets/9c848e0b-516a-42ff-9ba4-4c836ebf80dc" align="left" width="460" height=330" style="right-margin" alt="kitty" />
+<img src="https://github.com/user-attachments/assets/9bff1b80-2c0c-4bec-9bd0-7cac7b7aa8ad" align="left" width="460" height=330" style="right-margin" alt="kitty" />
 <br>
 <br>
 <img width="20" height="20" alt="IMG_2199" src="https://github.com/user-attachments/assets/6b25e2a1-5401-4dba-8978-0e22a67dbcd0" />
