@@ -2,7 +2,7 @@
 
 <img width="20" height="20" alt="IMG_1832" src="https://github.com/user-attachments/assets/17fac78f-e1e9-4f58-afcc-42c46af9f2ba" />
 
-<a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=kitties!&extraCount=808&color=F1E9E4&labelColor=FF6E4E&style=plastic"/>
+<a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=kitties!&extraCount=808&color=F4E3F0&labelColor=FF83AE&style=plastic"/>
 
 <br>
 <div align="center">
@@ -10,7 +10,7 @@
 <br>
 <br>
 <img width="20" height="20" alt="IMG_2199" src="https://github.com/user-attachments/assets/6b25e2a1-5401-4dba-8978-0e22a67dbcd0" />
-<img width="67" height="18" alt="tumblr-1f8a5c37967d7d26151dd523c729d6f0-8efe2d28-75" src="https://github.com/user-attachments/assets/7b23879c-8d5f-4bdc-8d72-909cb816f268" />
+<img width="67" height="18" alt=“skittles” src="https://github.com/user-attachments/assets/cc043830-3bff-4fd9-a14e-1c2c72ed1978" />
 <br>
 
 <img width="107" height="64" alt="IMG_1953" src="https://github.com/user-attachments/assets/e44c83d8-372f-4a81-9e25-9be87bc30e9c" />
