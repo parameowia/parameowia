@@ -21,7 +21,7 @@
 
 
 ‎<br>
-<img width="20" height="20" alt="IMG_1998" src="https://github.com/user-attachments/assets/57ea255d-aed9-4744-8031-d7f8e002d02d" />﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
+<img width="20" height="20" alt="IMG_1998" src="https://github.com/user-attachments/assets/ba6d9268-a35e-41d3-a9cf-1702e2ff1c00" />﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
 ‎ 
 <details>
 <summary> 𝐈𝐧𝐟𝐨 !</summary>
