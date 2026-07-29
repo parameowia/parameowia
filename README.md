@@ -47,15 +47,15 @@ new ata never /j ok maybe after a few days
 <summary> 𝐊𝐢𝐧𝐬 !</summary>
 <h6 align="center">
 
-<img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Indigo (Sonic Originals)
+<img width="20" height="20" alt="bandage" src="https://github.com/user-attachments/assets/6dad2fc1-71b4-4814-9721-3e362b0c5bff" /> ﹕ Indigo (Sonic Originals)
 
-<img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Lampert (Regretevator)
+<img width="20" height="20" alt="bandage" src="https://github.com/user-attachments/assets/6dad2fc1-71b4-4814-9721-3e362b0c5bff" />  ﹕ Lampert (Regretevator)
 
-<img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Gabriel (ULTRAKILL)
+<img width="20" height="20" alt="bandage" src="https://github.com/user-attachments/assets/6dad2fc1-71b4-4814-9721-3e362b0c5bff" />  ﹕ Gabriel (ULTRAKILL)
 
-<img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Medkit (Phighting!)
+<img width="20" height="20" alt="bandage" src="https://github.com/user-attachments/assets/6dad2fc1-71b4-4814-9721-3e362b0c5bff" />  ﹕ Medkit (Phighting!)
 
-<img width="20" height="20" alt="IMG_1717" src="https://github.com/user-attachments/assets/c2ea07eb-7849-475b-9205-c9e0e9f5c277" /> ﹕ Skittles / 𒐫𒐫𒐫𒐫...  / Soren (^_^ / HWWHP)
+<img width="20" height="20" alt="bandage" src="https://github.com/user-attachments/assets/6dad2fc1-71b4-4814-9721-3e362b0c5bff" />  ﹕ Skittles / 𒐫𒐫𒐫𒐫...  / Soren (^_^ / HWWHP)
 
 𝜗𝜚
 
