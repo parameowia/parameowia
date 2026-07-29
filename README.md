@@ -1,6 +1,7 @@
 <div align="center">
 
-<img width="20" height="20" alt="IMG_1832" src="https://github.com/user-attachments/assets/17fac78f-e1e9-4f58-afcc-42c46af9f2ba" />
+<img width="20" height="20" alt="viewkitty" src="https://github.com/user-attachments/assets/50b5488a-ccfd-4349-a531-eef55dc0b74a" />
+
 
 <a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=kitties!&extraCount=808&color=F4E3F0&labelColor=FF83AE&style=plastic"/>
 
