@@ -22,7 +22,7 @@
 <img width="20" height="20" alt="butterfly" src="https://github.com/user-attachments/assets/ba6d9268-a35e-41d3-a9cf-1702e2ff1c00" />﹕ ‎𝐜 * 𝐡 and 𝐛𝐨𝐨𝐩 freely !
 <br>‎
 <br>
-[𑣲 pt-fashion](https://github.com/pt-fashion) [𑣲 pt-hall-of-media](https://github.com/pt-hall-of-media) [𑣲 title-town](https://github.com/title-town) [𑣲 pt-nominations](https://github.com/pt-nominations)
+[𑣲 PT Fashion](https://github.com/pt-fashion) [𑣲 PT’s Hall Of Media](https://github.com/pt-hall-of-media) [𑣲 Title Town](https://github.com/title-town) [𑣲 PT Nominations](https://github.com/pt-nominations)
 <details>
 <summary> 𝐈𝐧𝐟𝐨 !</summary>
 <h6 align="center">
