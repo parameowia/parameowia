@@ -34,9 +34,7 @@ i'm STILL working on this TRASH again... (wip) <img width="20" height="20" alt="
 
 
 
-new ata never /j ok maybe after a few days
-
-[BluePendrive](https://github.com/Blue-Pendrive) is my other acc!
+i’m lazy ok… but the ata will be remade soon…
 
 <br>
 
