@@ -40,7 +40,7 @@ i’m lazy ok… but the ata will be remade soon…
 
 <br>
 
-<img width="100" height="100" alt=“moth” src="https://github.com/user-attachments/assets/aa8154fb-c6e4-40fe-933f-6cdf15c14a9c" />
+<img width="80" height="80" alt="artificer slugpup" src="https://github.com/user-attachments/assets/e0ad3821-d378-4071-9753-f74723fb5a71" />
 
 </details>
 
@@ -59,5 +59,4 @@ i’m lazy ok… but the ata will be remade soon…
 <img width="20" height="20" alt="bandage" src="https://github.com/user-attachments/assets/6dad2fc1-71b4-4814-9721-3e362b0c5bff" />  ﹕ Skittles / 𒐫𒐫𒐫𒐫...  / Soren (^_^ / HWWHP)
 
 𝜗𝜚
-
 </details>
