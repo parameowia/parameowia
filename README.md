@@ -34,6 +34,8 @@ Thank you! ^ω^
 <br>
 ‪‪⧽ hello! most of my oomfies call me mewo or milo and i also go by soren. i'm kinda open to silly nicknames and other names you might think of though.
 
+most of the time i’m busy and pretty much exhausted, but i try my best to play with my silly family… they make me feel happy
+
 i'm STILL working on this TRASH again... (wip) <img width="20" height="20" alt="ticktock" src="https://github.com/user-attachments/assets/aa8b9db6-9463-4af2-a703-eacf922f5ef8" />
 
 
