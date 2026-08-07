@@ -2,7 +2,7 @@
 
 <img width="20" height="20" alt="viewkitty" src="https://github.com/user-attachments/assets/c4133486-948b-4f8a-ac92-2d8d28c42dff"
  />
-<a href="https://hits.sh/github.com/parameowia/"><img alt="thing" src="https://hits.sh/github.com/parameowia.svg?label=kitties!&extraCount=808&color=F4E3F0&labelColor=FF83AE&style=plastic"/>
+<a href="https://hits.sh/github.com/parameowia/"><img alt="kitty counter" src="https://hits.sh/github.com/parameowia.svg?label=kitties!&extraCount=808&color=FFF6FC&labelColor=FF83AE&style=plastic"/>
 
 <br>
 <div align="center">
