@@ -32,9 +32,9 @@ Thank you! ^ω^
 <summary> 𝐈𝐧𝐟𝐨 !</summary>
 <h6 align="center">
 <br>
-‪‪⧽ hello! most of my oomfies call me mewo or milo and i also go by soren. i'm kinda open to silly nicknames and other names you might think of though.
- 
-‪‪⧽ i’m a chill brazilian ponytowner, olá fofos !!!!!!!!!!
+‪‪⧽ hello! most of my oomfies call me mewo or milo and i also go by soren. i'm kinda open to silly nicknames and other names you might think of though. i’m also a chill brazilian ponytowner, olá fofos !!!!!!!!!!
+
+i like following people who share my interests and cool accounts teehee
 
 ‪‪⧽ most of the time i’m busy and pretty much exhausted, but i try my best to play with my silly family… they make me feel happy
 
