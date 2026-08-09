@@ -38,7 +38,7 @@ i like following people who share my interests and cool accounts teehee
 
 ‪‪⧽ most of the time i’m busy and pretty much exhausted, but i try my best to play with my silly family… they make me feel happy
 
-‪‪⧽ cool funfact: i’ve actually practiced kung fu for a long time, my uncle is a Shifu/Sifu :) and yes, I do know how to do the lion dance and also participated in some festivals as one of the performers.
+‪‪⧽ cool funfact: i’ve actually practiced kung fu for a long time, my uncle is a Shifu/Sifu (master, teacher) :) and yes, I do know how to do the lion dance and also participated in some festivals as one of the performers.
 
 i'm STILL working on this TRASH again... (wip) <img width="20" height="20" alt="ticktock" src="https://github.com/user-attachments/assets/aa8b9db6-9463-4af2-a703-eacf922f5ef8" />
 
