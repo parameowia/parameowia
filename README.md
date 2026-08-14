@@ -23,7 +23,7 @@
 <br>‎
 <br>
 <img width="20" height="20" alt="IMG_2295" src="https://github.com/user-attachments/assets/ff1a0559-e14c-4bc5-aecb-2c3b3b04eafd" />
-‎[PT’s Hall Of Media](https://github.com/pt-hall-of-media) [Title Town](https://github.com/title-town) [PT Nominations](https://github.com/pt-nominations) [PT Medals](https://github.com/pt-medals) [Ponychievements](https://github.com/ponychievements) [PT Walk Of Fame](https://github.com/pt-walk-of-fame)
+‎[PT’s Hall Of Media](https://github.com/pt-hall-of-media) [Title Town](https://github.com/title-town) [PT Nominations](https://github.com/pt-nominations) [PT Medals](https://github.com/pt-medals) [Ponychievements](https://github.com/ponychievements) [PT Walk Of Fame](https://github.com/pt-walk-of-fame) [CosplayTown](https://github.com/cosplaytown)
 
 ⟡ 𝗵𝗺: [PT Friendships](https://github.com/pt-friendships) [‎PT Fashion](https://github.com/pt-fashion)
 
