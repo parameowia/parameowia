@@ -67,4 +67,7 @@ i’m lazy ok… but the ata will be remade soon…
 <img width="20" height="20" alt="bandage" src="https://github.com/user-attachments/assets/6dad2fc1-71b4-4814-9721-3e362b0c5bff" />  ﹕ Skittles / 𒐫𒐫𒐫𒐫...  / Soren (^_^ / HWWHP)
 
 𝜗𝜚
+
+<img width="107" height="64" alt="us" src="https://github.com/user-attachments/assets/60357481-50e6-40f8-888b-5da2ca7810ab" />
+
 </details>
