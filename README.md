@@ -68,7 +68,9 @@
 
   most of the time i’m busy and prety much exhausted, but i try my best to play with my silly family… they make me feel happy
 
-i literally spent 5 hours making this just to realize it was completeky corrupted and i had to remake it all over again ok.
+i literally spent 5 hours making this just to realize it was completely corrupted and i had to remake it all over again ok.
+
+also art on tv is by me :)
 
   <img width="100" height="100" alt="nightmare" src="https://file.garden/aoZcQsbH5m5bERAE/Nightmare" />
 
