@@ -28,10 +28,6 @@
 <p align=“center”>
 <img src="https://github.com/user-attachments/assets/f03632f7-f8ed-47e7-aea7-4efc7431096b" align="right" width="200" height=280" style="left-margin" alt="miu” />
 
-<table border=“0” align=“center” style=“border: none; border-collapse: collapse; margin: auto;”>
-<tr style=“none;”>
-
-<td width="50%" align="center" style="border: none; padding: 0;">
 <div align=“center”>
  ⸝⸝ 𝗡𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗼𝗻 𝗣𝗲𝗮𝗿𝗹𝘀
  <br>
