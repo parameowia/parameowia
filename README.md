@@ -88,7 +88,7 @@ i literally spent 5 hours making this just to realize it was completeky corrupte
 
 • Medkit (Phighting!)
 
-• Skittles // Soren (^_^ / HWWHP)
+• Skittles /𒐫𒐫𒐫/ Soren (^_^ / HWWHP)
 
 𝜗𝜚
 
