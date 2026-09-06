@@ -6,7 +6,7 @@
 
 <br>
 <div align="center">
-<img src="https://github.com/user-attachments/assets/79eb6230-334a-42a3-8202-303300b74203" align="left" width="471" height=330" style="right-margin" alt="reunion" />
+<img src="https://github.com/user-attachments/assets/79eb6230-334a-42a3-8202-303300b74203" align="left" width="461" height=320" style="right-margin" alt="reunion" />
 <br>
 <br>
 <img width="20" height="20" alt="sparkles" src="https://github.com/user-attachments/assets/35e7d758-c426-4e37-b096-a1f987984698" />
