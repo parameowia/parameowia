@@ -66,7 +66,7 @@
 
   i like following people who share my interests and cool accounts teehee
 
-  most of the time i’m busy and prety much exhausted, but i try my best to play with my silly family… they make me feel happy
+  most of the time i’m busy and pretty much exhausted, but i try my best to play with my silly family… they make me feel happy
 
 i literally spent 5 hours making this just to realize it was completely corrupted and i had to remake it all over again ok.
 
