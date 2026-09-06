@@ -22,7 +22,7 @@
 <br>
 <br>
 
-<img src="https://file.garden/aoZcQsbH5m5bERAE/Look" align="right" width="210" height="200" />
+<img src="https://file.garden/aoZcQsbH5m5bERAE/Lookie" align="right" width="200" height="190" />
 
 <div align="center">
 ⸝⸝ 𝗡𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗼𝗻 𝗣𝗲𝗮𝗿𝗹𝘀
