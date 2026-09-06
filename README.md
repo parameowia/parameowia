@@ -105,7 +105,7 @@ new ata maybe tomorrow or some other day
 
 𝜗𝜚
 
-<img width="107" height="64" alt="IMG_2556" src="https://github.com/user-attachments/assets/cd8ea048-571c-41f4-aca2-7a45a42bb5c1" />
+<img width="107" height="64" alt="moth" src="https://github.com/user-attachments/assets/cd8ea048-571c-41f4-aca2-7a45a42bb5c1" />
 
 </details>
 
