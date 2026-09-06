@@ -30,38 +30,20 @@
 
 <div align=“center”>
  
- ⸝⸝ 𝗡𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗼𝗻 𝗣𝗲𝗮𝗿𝗹𝘀
+ ⸝⸝ 𝗡𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗼𝗻𝘀
  
 <br>
 <br>
-<a href="https://github.com/pt-hall-of-media">
-  <img src="https://github.com/user-attachments/assets/6f709f7b-e455-46bb-b0b0-6f128dc788de" alt="pearl1" width="25" />
-</a>
-<a href="https://github.com/title-town">
-  <img src="https://github.com/user-attachments/assets/61d6dc61-e807-4478-be0d-1cf347d1b967" alt="pearl2" width="25" />
-</a>
-<a href="https://github.com/pt-nominations">
-  <img src="https://github.com/user-attachments/assets/05d48e12-9ba0-4c24-8460-9c1068ffb550" alt="pearl3" width="25" />
-</a>
-<a href="https://github.com/pt-medals">
-  <img src="https://github.com/user-attachments/assets/0b13347c-ab61-493e-81ee-488e02a99249" alt="pearl4" width="25" />
-</a>
-<a href="https://github.com/ponychievements">
-  <img src="https://github.com/user-attachments/assets/6f709f7b-e455-46bb-b0b0-6f128dc788de" alt="pearl5" width="25" />
-</a>
-<a href="https://github.com/pt-walk-of-fame">
-  <img src="https://github.com/user-attachments/assets/0b13347c-ab61-493e-81ee-488e02a99249" alt="pearl6" width="25" />
-</a>
-<a href="https://github.com/cosplaytown">
-  <img src="https://github.com/user-attachments/assets/05d48e12-9ba0-4c24-8460-9c1068ffb550" alt="pearl7" width="25" />
-</a>
 
-✦ 𝗵𝗺: <a href="https://github.com/pt-friendships">
-  <img src="https://github.com/user-attachments/assets/0b13347c-ab61-493e-81ee-488e02a99249" alt="pearl8" width="25" />
-</a>
-<a href="https://github.com/pt-fashion">
-  <img src="https://github.com/user-attachments/assets/6f709f7b-e455-46bb-b0b0-6f128dc788de" alt="pearl9" width="25" />
-</a>
+[PT’s Hall Of Media](https://github.com/pt-hall-of-media)
+[Title Town](https://github.com/title-town)
+[PT Nominations](https://github.com/pt-nominations)
+[PT Medals](https://github.com/pt-medals)
+[Ponychievements](https://github.com/ponychievements)
+[PT Walk Of Fame](https://github.com/pt-walk-of-fame)
+[Cosplay Town](https://github.com/cosplaytown)
+
+✦ 𝗵𝗺: [PT Friendships](https://github.com/pt-friendships) [PT Fashion](https://github.com/pt-fashion)
 
 𝗧𝗵𝗮𝗻𝗸 𝘆𝗼𝘂! ^ω^
 
