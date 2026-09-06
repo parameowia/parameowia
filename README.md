@@ -79,8 +79,7 @@ i like following people who share my interests and cool accounts teehee
 
 ‪‪most of the time i’m busy and pretty much exhausted, but i try my best to play with my silly family… they make me feel happy
 
-
-new ata maybe tomorrow or some other day
+new ata maybe tomorrow or some other day… also, art on tv is mine ^_^
 
 <br>
 
