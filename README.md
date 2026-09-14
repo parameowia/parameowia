@@ -50,7 +50,10 @@
   <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%203" alt="Cosplay Town" width="20">
  </a>
  
- ✦ 𝗵𝗺: <a href="https://github.com/pt-friendships">
+ ✦ 𝗵𝗺: <a href="https://github.com/music-town">
+  <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%203" alt="Music Town" width="20">
+ </a>
+ <a href="https://github.com/pt-friendships">
   <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%202" alt="PT Friendships" width="20">
  </a>
 <a href="https://github.com/pt-fashion">
