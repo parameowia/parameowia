@@ -41,8 +41,11 @@
 <a href="https://github.com/pt-medals">
  <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%202" alt="PT Medals" width="20">
 </a>
+<br>
+
 <a href="https://github.com/ponychievements">
  <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%201" alt="Ponychievemnts" width="20">
+</a>
  <a href="https://github.com/pt-walk-of-fame">
   <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%202" alt="PT Walk Of Fame" width="20">
  </a>
