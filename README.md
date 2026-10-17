@@ -1,5 +1,5 @@
 <div align="center">
-𑣲
+𑣲 
 <a href="https://hits.sh/github.com/parameowia/"><img alt="kitty counter" src="https://hits.sh/github.com/parameowia.svg?label=slugpups!&extraCount=808&color=C49A7D&labelColor=963B40"/> </a>
  
 <br>
