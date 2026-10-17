@@ -17,6 +17,7 @@
 <img width="109" height="64" alt="stamp4" src="https://file.garden/aoZcQsbH5m5bERAE/Stamp%204" />
 
 <br>
+<img width="20" height="20" alt="sparkles" src="https://file.garden/aoZcQsbH5m5bERAE/Sparkly" />
 <img width="170" height="19" alt="text text teehee" src="https://file.garden/aoZcQsbH5m5bERAE/Text%20text%20teehee" />
 <br>
 <br>
