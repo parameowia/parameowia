@@ -1,6 +1,6 @@
 <div align="center">
-<img width="20" height="26" alt="explosive_spear" src="https://file.garden/aoZcQsbH5m5bERAE/Explosive%20Spear" />
-<a href="https://hits.sh/github.com/parameowia/"><img alt="kitty counter" src="https://hits.sh/github.com/parameowia.svg?label=slugpups!&extraCount=808&color=C49A7D&labelColor=963B40"/></a>
+⟡ 
+<a href="https://hits.sh/github.com/parameowia/"><img alt="kitty counter" src="https://hits.sh/github.com/parameowia.svg?label=slugpups!&extraCount=808&color=C49A7D&labelColor=963B40"/></a> 𓏼
 <br>
 <br>
 <img src="https://file.garden/aoZcQsbH5m5bERAE/Arti%20and%20Slugpups" align="left" width="461" height="320" />
@@ -17,7 +17,6 @@
 <img width="109" height="64" alt="stamp4" src="https://file.garden/aoZcQsbH5m5bERAE/Stamp%204" />
 
 <br>
-<img width="17" height="24" alt="bomb" src="https://file.garden/aoZcQsbH5m5bERAE/Bomb" />
 <img width="170" height="19" alt="text text teehee" src="https://file.garden/aoZcQsbH5m5bERAE/Text%20text%20teehee" />
 <br>
 <br>
