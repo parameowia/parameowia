@@ -1,6 +1,7 @@
 <div align="center">
 ⟡ 
-<a href="https://hits.sh/github.com/parameowia/"><img alt="kitty counter" src="https://hits.sh/github.com/parameowia.svg?label=slugpups!&extraCount=808&color=C49A7D&labelColor=963B40"/></aㅤㅤㅤㅤ>‎‎ ‎‎
+<a href="https://hits.sh/github.com/parameowia/"><img alt="kitty counter" src="https://hits.sh/github.com/parameowia.svg?label=slugpups!&extraCount=808&color=C49A7D&labelColor=963B40"/> </a>
+ 
 <br>
 <br>
 <img src="https://file.garden/aoZcQsbH5m5bERAE/Arti%20and%20Slugpups" align="left" width="461" height="320" />
