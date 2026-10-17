@@ -72,9 +72,13 @@
  <summary>𝐈𝐧𝐟𝐨 !</summary>
  <h6 align="center">
  <br>
-  hello! most of my oomfies call me mewo or milo and i also go by soren. i’m kinda open to silly nicknames though. i’m also a chill brazilian ponytowner, ola fofos !
+  hello! most of my oomfies call me mewo or milo and i also go by soren. i’m kinda open to silly nicknames though. i’m also a chill brazilian ponytowner, ola fofos ! i like following people who share my interests and cool accounts teehee
 
-  i like following people who share my interests and cool accounts teehee
+ _
+ 
+i will mostly not interact at all with people based on my personal experiences with whatever is specifically related to them; if they’re someone who in the past badly disrupted the peace of my family, i will, in fact, block them.
+
+***
 
   most of the time i’m busy and pretty much exhausted, but i try my best to play with my silly family… they make me feel happy
 
