@@ -100,18 +100,12 @@ if you didn’t see my ata, it’s in the expie stamp…
   <br>
  <img width="20" height="20" alt="fawn" src="https://file.garden/aoZcQsbH5m5bERAE/Fawn" />
  
-• Indigo (Sonic Originals)
- 
 • Lampert (Regretevator)
-
-• Gabriel (ULTRAKILL)
-
-• Medkit (Phighting!)
 
 • Skittles /𒐫𒐫𒐫/ Soren (^_^ / HWWHP)
 
+✚ a few others, currently thinking
+  
 𝜗𝜚
-
-<img width="107" height="64" alt="moth" src="https://file.garden/aoZcQsbH5m5bERAE/Moth" />
 
 </details>
