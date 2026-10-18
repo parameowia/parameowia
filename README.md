@@ -15,7 +15,7 @@
 <img width="107" height="64" alt="stamp1" src="https://file.garden/aoZcQsbH5m5bERAE/Stamp%201" />
 <img width="107" height="64" alt="stamp2" src="https://file.garden/aoZcQsbH5m5bERAE/Stamp%202" />
 <img width="107" height="64" alt="stamp3" src="https://file.garden/aoZcQsbH5m5bERAE/Stamp%203" />
-<a href="parameowia.atabook.org">
+<a href="https://parameowia.atabook.org">
  <img src="https://file.garden/aoZcQsbH5m5bERAE/Stamp%20Ata" alt="ata" width="107" height="64">
 </a>
 
