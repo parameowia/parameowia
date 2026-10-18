@@ -86,7 +86,7 @@ i will mostly not interact at all with people based on my personal experiences w
 
 i literally spent 5 hours making this just to realize it was completely corrupted and i had to remake it all over again ok.
 
-also art on tv is by me and gif is by Vinqou, go check their work :)
+also art on tv is mine and gif is by Vinqou, go check their work :)
 
   <img width="100" height="100" alt="nightmare" src="https://file.garden/aoZcQsbH5m5bERAE/Nightmare" />
 
