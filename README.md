@@ -88,6 +88,8 @@ i literally spent 5 hours making this just to realize it was completely corrupte
 
 also art on tv is mine and gif is by Vinqou, go check their work :)
 
+if you didn’t see my ata, it’s in one of the stamps…
+
   <img width="100" height="100" alt="nightmare" src="https://file.garden/aoZcQsbH5m5bERAE/Nightmare" />
 
 </details>
