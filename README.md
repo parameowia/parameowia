@@ -88,9 +88,9 @@ i literally spent 5 hours making this just to realize it was completely corrupte
 
 also art on tv is mine and gif is by Vinqou, go check their work :)
 
-if you didn’t see my ata, it’s one of my stamps… OR IF YOU’RE LAZY HERE’S THE [ATA](https://parameowia.atabook.org)
+if you didn’t see my ata, it’s one of my stamps… OR IF YOU’RE LAZY (like me) HERE’S THE [ATA](https://parameowia.atabook.org)
 
-i’m not creating a strawpage, i’m sorry i’m too evil…
+i’m not creating a strawpage, i’m sorry i’m too evil… ok maybe one day...
 
   <img width="100" height="100" alt="nightmare" src="https://file.garden/aoZcQsbH5m5bERAE/Nightmare" />
 
