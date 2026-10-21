@@ -106,6 +106,8 @@ i’m not creating a strawpage, i’m sorry i’m too evil… ok maybe one day..
 
 • Skittles /𒐫𒐫𒐫/ Soren (^_^ / HWWHP)
 
+• Calogado, mostly Yamai ver. (UTAU)
+
 ✚ a few others, currently thinking
   
 𝜗𝜚
