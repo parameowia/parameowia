@@ -106,7 +106,7 @@ i’m not creating a strawpage, i’m sorry i’m too evil… ok maybe one day..
 
 • Skittles /𒐫𒐫𒐫/ Soren (^_^ / HWWHP)
 
-• Calogado, mostly Yamai ver. (UTAU)
+• Calogado – Standard, Yamai and Kasuka ver. (UTAU)
 
 ✚ a few others, currently thinking
   
