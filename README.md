@@ -1,6 +1,6 @@
 <div align="center">
 <img src="https://file.garden/aoZcQsbH5m5bERAE/Pill" width="20" height="20" />
-<a href="https://hits.sh/github.com/parameowia/"><img alt="kitty counter" src="https://hits.sh/github.com/parameowia.svg?label=slugpups!&extraCount=808&color=B29084&labelColor=89232B"/> </a>
+<a href="https://hits.sh/github.com/parameowia/"><img alt="counter" src="https://hits.sh/github.com/parameowia.svg?label=patients!&extraCount=808&color=B29084&labelColor=89232B"/> </a>
  
 <br>
 <br>
