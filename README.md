@@ -1,75 +1,86 @@
 <div align="center">
-𑣲 
-<a href="https://hits.sh/github.com/parameowia/"><img alt="kitty counter" src="https://hits.sh/github.com/parameowia.svg?label=slugpups!&extraCount=808&color=C49A7D&labelColor=963B40"/> </a>
+<img src="https://file.garden/aoZcQsbH5m5bERAE/Pill" width="20" height="20" />
+<a href="https://hits.sh/github.com/parameowia/"><img alt="kitty counter" src="https://hits.sh/github.com/parameowia.svg?label=slugpups!&extraCount=808&color=B29084&labelColor=89232B"/> </a>
  
 <br>
 <br>
-<img src="https://file.garden/aoZcQsbH5m5bERAE/Arti%20and%20Slugpups" align="left" width="461" height="320" />
-
+<img src="https://file.garden/aoZcQsbH5m5bERAE/ACTUAL%20icon" width="290" height="290" />
 <br>
 <br>
-<img width="20" height="20" alt="sparkles" src="https://file.garden/aoZcQsbH5m5bERAE/Sparkles" />
-<img width="67" height="18" alt="skittles" src="https://file.garden/aoZcQsbH5m5bERAE/Skittles" />
-<br>
-
-<img width="107" height="64" alt="stamp1" src="https://file.garden/aoZcQsbH5m5bERAE/Stamp%201" />
-<img width="107" height="64" alt="stamp2" src="https://file.garden/aoZcQsbH5m5bERAE/Stamp%202" />
-<img width="107" height="64" alt="stamp3" src="https://file.garden/aoZcQsbH5m5bERAE/Stamp%203" />
-<a href="https://parameowia.atabook.org">
- <img src="https://file.garden/aoZcQsbH5m5bERAE/Stamp%20Ata" alt="ata" width="107" height="64">
-</a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Alice&duration=1&color=89232B&center=true&repeat=false&width=280&lines=c*h+and+boop+freely!" alt="Typing SVG" /></a>
 
 <br>
 <img width="20" height="20" alt="sparkles" src="https://file.garden/aoZcQsbH5m5bERAE/Sparkly" />
-<img width="170" height="19" alt="text text teehee" src="https://file.garden/aoZcQsbH5m5bERAE/Text%20text%20teehee" />
+<img width="67" height="18" alt="skittles" src="https://file.garden/aoZcQsbH5m5bERAE/Skittles" />
+<br>
+
+<img width="107" height="64" alt="stamp1" src="https://file.garden/aoZcQsbH5m5bERAE/SYRINGE" />
+<img width="107" height="64" alt="stamp2" src="https://file.garden/aoZcQsbH5m5bERAE/More%20syringe" />
+<a href="https://youtu.be/NQgNP67WSck?is=0iIlCRzaMb78NIDB">
+ <img src="https://file.garden/aoZcQsbH5m5bERAE/Medical" alt="stamp3" width="107" height="64">
+</a>
+<a href="https://parameowia.atabook.org">
+ <img src="https://file.garden/aoZcQsbH5m5bERAE/Hospital%20Ata" alt="ata" width="107" height="64">
+</a>
+
+<br>
+<br>
+<img src="https://file.garden/aoZcQsbH5m5bERAE/Blood" width="200" height="30" /> <img src="https://file.garden/aoZcQsbH5m5bERAE/Meds" width="200" height="30" /> <img src="https://file.garden/aoZcQsbH5m5bERAE/More%20blood%20oughh" width="200" height="30" />
 <br>
 <br>
 
-<img src="https://file.garden/aoZcQsbH5m5bERAE/brush%20brush" align="right" width="200" height="190" />
+<img src="https://file.garden/aoZcQsbH5m5bERAE/Calogado" align="right" width="170" height="205" />
 
 <div align="center">
-⸝⸝ 𝗡𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗼𝗻 𝗣𝗲𝗮𝗿𝗹𝘀
-<img src="https://file.garden/aoZcQsbH5m5bERAE/Arti" align="left" width="230" height="180"/>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Alice&duration=1&color=89232B&center=true&repeat=false&width=280&lines=My+best+patients%3A" alt="Typing SVG" /></a>
+
+<img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Samples" align="left" width="170" />
 
 <br>
 <a href="https://github.com/pt-hall-of-media">
- <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%201" alt="PT Hall Of Media" width="20">
+ <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="PT Hall Of Media" width="30">
 </a>
 <a href="https://github.com/title-town">
- <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%202" alt="Title Town" width="20">
+ <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="Title Town" width="30">
 </a>
 <a href="https://github.com/pt-nominations">
- <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%203" alt="PT Nominations" width="20">
+ <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="PT Nominations" width="30">
 </a>
 <a href="https://github.com/pt-medals">
- <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%202" alt="PT Medals" width="20">
+ <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="PT Medals" width="30">
 </a>
 <br>
 
 <a href="https://github.com/ponychievements">
- <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%201" alt="Ponychievemnts" width="20">
+ <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="Ponychievemnts" width="30">
 </a>
  <a href="https://github.com/pt-walk-of-fame">
-  <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%202" alt="PT Walk Of Fame" width="20">
+  <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="PT Walk Of Fame" width="30">
  </a>
  <a href="https://github.com/cosplaytown">
-  <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%203" alt="Cosplay Town" width="20">
+  <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="Cosplay Town" width="30">
  </a>
 <a href="https://github.com/paw-town">
-  <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%202" alt="Paw Town" width="20">
+  <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="Paw Town" width="30">
  </a>
- 
+
+ <h5 align="center">
  ✦ 𝗵𝗺: <a href="https://github.com/music-town">
-  <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%203" alt="Music Town" width="20">
+  <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="Music Town" width="30">
  </a>
  <a href="https://github.com/pt-friendships">
-  <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%202" alt="PT Friendships" width="20">
+  <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="PT Friendships" width="30">
  </a>
 <a href="https://github.com/pt-fashion">
- <img src="https://file.garden/aoZcQsbH5m5bERAE/Pearl%201" alt="PT Fashion" width="20">
+ <img src="https://file.garden/aoZcQsbH5m5bERAE/Blood%20Sample" alt="PT Fashion" width="30">
 </a>
 
-𝗧𝗵𝗮𝗻𝗸 𝘆𝗼𝘂! ^ω^
+</h5>
+
+<h6 align="center">
+𝗧𝗵𝗮𝗻𝗸 𝘆𝗼𝘂 𝗳𝗼𝗿 𝗻𝗼𝗺𝗶𝗻𝗮𝘁𝗶𝗻𝗴! ^ω^
+
+</h6>
 <details>
  <summary>𝐈𝐧𝐟𝐨 !</summary>
  <h6 align="center">
@@ -86,13 +97,11 @@ i will mostly not interact at all with people based on my personal experiences w
 
 i literally spent 5 hours making this just to realize it was completely corrupted and i had to remake it all over again ok.
 
-also art on tv is mine and gif is by Vinqou, go check their work :)
-
 if you didn’t see my ata, it’s one of my stamps… OR IF YOU’RE LAZY (like me) HERE’S THE [ATA](https://parameowia.atabook.org)
 
-i’m not creating a strawpage, i’m sorry i’m too evil… ok maybe one day...
+i’m not creating a strawpage, i’m sorry i’m too evil… ok maybe one day…
 
-  <img width="100" height="100" alt="nightmare" src="https://file.garden/aoZcQsbH5m5bERAE/Nightmare" />
+  <img width="160" height="240" alt="fish" src="https://file.garden/aoZcQsbH5m5bERAE/Fishy" />
 
 </details>
 
@@ -100,7 +109,7 @@ i’m not creating a strawpage, i’m sorry i’m too evil… ok maybe one day..
  <summary>𝐊𝐢𝐧𝐬 !</summary>
  <h6 align="center">
   <br>
- <img width="20" height="20" alt="fawn" src="https://file.garden/aoZcQsbH5m5bERAE/Fawn" />
+ <img width="20" height="20" alt="bloodbag" src="https://file.garden/aoZcQsbH5m5bERAE/Bloodbag" />
  
 • Lampert (Regretevator)
 
