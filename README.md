@@ -29,7 +29,7 @@
 <br>
 <br>
 
-<img src="https://file.garden/aoZcQsbH5m5bERAE/Calogado" align="right" width="170" height="205" />
+<img src="https://file.garden/aoZcQsbH5m5bERAE/calolo" align="right" width="170" height="205" />
 
 <div align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Alice&duration=1&color=89232B&center=true&repeat=false&width=280&lines=My+best+patients%3A" alt="Typing SVG" /></a>
