@@ -16,7 +16,7 @@
 
 <img width="107" height="64" alt="stamp1" src="https://file.garden/aoZcQsbH5m5bERAE/SYRINGE" />
 <img width="107" height="64" alt="stamp2" src="https://file.garden/aoZcQsbH5m5bERAE/More%20syringe" />
-<a href="https://youtu.be/NQgNP67WSck?is=0iIlCRzaMb78NIDB">
+<a href="https://youtu.be/2D1skJGWAdM?is=gDSBH6_VhxhR8yes">
  <img src="https://file.garden/aoZcQsbH5m5bERAE/Medical" alt="stamp3" width="107" height="64">
 </a>
 <a href="https://parameowia.atabook.org">
