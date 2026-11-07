@@ -12,6 +12,7 @@
 <br>
 <img width="20" height="20" alt="sparkles" src="https://file.garden/aoZcQsbH5m5bERAE/Sparkly" />
 <img width="67" height="18" alt="skittles" src="https://file.garden/aoZcQsbH5m5bERAE/Skittles" />
+<img src="https://file.garden/aoZcQsbH5m5bERAE/Blep" width="30" height="30">
 <br>
 
 <img width="107" height="64" alt="stamp1" src="https://file.garden/aoZcQsbH5m5bERAE/SYRINGE" />
