@@ -4,7 +4,7 @@
  
 <br>
 <br>
-<img src="https://file.garden/aoZcQsbH5m5bERAE/ACTUAL%20icon" width="290" height="290" />
+<img src="https://file.garden/aoZcQsbH5m5bERAE/calo%20icon" width="290" height="290" />
 <br>
 <br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Alice&duration=1&color=89232B&center=true&repeat=false&width=280&lines=c*h+and+boop+freely!" alt="Typing SVG" /></a>
