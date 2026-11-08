@@ -108,7 +108,7 @@ if you didn’t see my ata, it’s one of my stamps… OR IF YOU’RE LAZY (like
 
 i’m not creating a strawpage, i’m sorry i’m too evil… ok maybe one day…
 
-  <img width="160" height="240" alt="fish" src="https://file.garden/aoZcQsbH5m5bERAE/Fishy" />
+  <img width="160" height="260" alt="fish" src="https://file.garden/aoZcQsbH5m5bERAE/Fishy" />
 
 </details>
 
