@@ -98,7 +98,7 @@
 i will mostly not interact at all with people based on my personal experiences with whatever is specifically related to them; if they’re someone who in the past badly disrupted the peace of my family, i will, in fact, block them.
 
 ***
-i really like playing casualties: unknown ❤️
+i really like playing casualties: unknown and rain world ❤️
 
   most of the time i’m busy and pretty much exhausted, but i try my best to play with my silly family… they make me feel happy
 
