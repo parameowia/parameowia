@@ -91,8 +91,8 @@
  <summary>𝐈𝐧𝐟𝐨 !</summary>
  <h6 align="center">
  <br>
-  hello! most of my oomfies call me mewo or milo and i also go by soren. i’m kinda open to silly nicknames though. i’m also a chill brazilian ponytowner, ola fofos ! i like following people who share my interests and cool accounts teehee
-
+  hello! most of my oomfies call me mewo or milo and i also go by soren. i’m kinda open to silly nicknames though. i’m nonbinary, but I really don’t care which pronoun you use with me (I honestly don’t use neopronouns… they’re too difficult for me to use especially in my native language…) i’m also a chill brazilian ponytowner, ola fofos!! i like following people who share my interests and cool accounts teehee
+  
  _
  
 i will mostly not interact at all with people based on my personal experiences with whatever is specifically related to them; if they’re someone who in the past badly disrupted the peace of my family, i will, in fact, block them.
